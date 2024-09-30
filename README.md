@@ -1,0 +1,2 @@
+# DCC831-TECC_Seminarios_em_Governanca_e_Auditoria_Algoritmica
+ 
